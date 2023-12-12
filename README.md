@@ -9,7 +9,7 @@ Tych co tutaj dotarli chciałbym zaprosić na moją dwudziestkę, która odbędz
  # DROBIAZGI 
  Z racji, że jest mocny spontan, zafundujcie kierowcom paliwo:)))
  # POTWIERDZENIA
- via messenger wszystko inne (>/dev/null) 
+ via excel wszystko inne (>/dev/null) 
  
  
  
